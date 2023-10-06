@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kryptonud
+- 👀 I Like Making Video Game Cheats
+- 🌱 I’m currently learning C++/Kernel
+- 📫 My Discord Is farter001
